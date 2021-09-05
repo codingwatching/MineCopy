@@ -1,1 +1,1 @@
-A Minecraft remake, if you want to learn how to play, watch YouTube.
+A Minecraft remake, I freaking hate you roller you piece of shit.
